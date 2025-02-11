@@ -1,2 +1,2 @@
 👋 Hello, I am Simran an engineer 
-![bg](https://github.com/user-attachments/assets/9343116c-2a26-4795-af40-948e3a296f44)
+![bg2](https://github.com/user-attachments/assets/f663349b-45da-4f80-837a-6b77e19d04c9)

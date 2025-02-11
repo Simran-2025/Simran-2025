@@ -1,5 +1,5 @@
 👋 Hello, I am Simran an engineer 
 
+![robot](https://github.com/user-attachments/assets/7cc2cb72-3297-417d-a71f-2daf91dc7d70)
 
-![robot](https://github.com/user-attachments/assets/a9b2a60e-2572-40a5-8494-abbed41e4852)
 
